@@ -1,4 +1,5 @@
- 🔭 I’m currently working on academic projects trying to learn and applying new features and techniques
+ 🔭 I’m a 23 yrs old college student graduating on System development and analisys, i'm currently working on academics projects trying to learn and applying new features and techniques
+ 
  
  📫 How to reach me: 
 <ul>
