@@ -6,6 +6,6 @@
 <li>My Linkedln: </li>
 </ul>
 
-⚡  Fun fact: i am also a Dancer and bass player,
+⚡  Fun fact: I am also a dancer and bass player,
     i lov music and philosophy
 
