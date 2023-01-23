@@ -4,7 +4,7 @@
  📫 How to reach me: 
 <ul>
 <li>My personal phone number: (21)981351448</li>
-<li>My Linkedln: </li>
+<li>My Linkedln: https://www.linkedin.com/in/lucas-das-chagas-6a7096196/</li>
 </ul>
 
 ⚡  Fun fact: I am also a dancer and bass player,
