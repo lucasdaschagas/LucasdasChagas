@@ -8,5 +8,5 @@
 </ul>
 
 ⚡  Fun fact: I am also a dancer and bass player,
-    i lov music and philosophy
+    i lov music, technology  and philosophy
 
