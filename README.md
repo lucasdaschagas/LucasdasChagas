@@ -1,4 +1,4 @@
- 🔭 I’m a 23 yrs old college student graduating on System development and analisys, i'm currently working on academic projects trying to learn and applying new features and techniques
+ 🔭 I’m a 23 yrs old college student graduating on System development and analisys, i'm currently working on academic projects trying to learn and applying new features and techniques, and also seeking a job opportunity.
  
  
  📫 How to reach me: 
