@@ -7,6 +7,6 @@
 <li>My Linkedln: https://www.linkedin.com/in/lucas-das-chagas-6a7096196/</li>
 </ul>
 
-⚡  Fun fact: I am also a dancer and bass player,
+⚡  Fun fact: I am also a karate practitioner and bass player,
     i lov music, technology  and philosophy
 
